@@ -1,4 +1,4 @@
-#  
+#  Experience aura ascension like never before with aura ascension elite Scripts, the #1 Script. Includes infinite resources and instant win for
 
 
 
